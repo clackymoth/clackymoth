@@ -5,3 +5,6 @@ I do not know how to GitHub, apologies.
 Follow me if you think I am silly /j
 
 PLEASE W2I if it is something important, I randomly go AFK soz TwT
+
+
+PLEASE compliment my morphs, thank you it means a lot I spend a ton of time on them.
